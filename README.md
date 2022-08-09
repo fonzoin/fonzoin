@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Noob, learning in XDU (Xidian University), a crazy Dragonborn, a loyal Wumi (fans of Wu Bai, an awesome Chinese singer)... All these things mixed up can be ME!!
+骐骥一跃，不能十步；驽马十驾，功在不舍。
